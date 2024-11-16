@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @malwarthread
+- 👀 I’m interested in black Hat Hacking
+- 🌱 I’m currently learning malware devlopment
+- 💞️ I’m looking to collaborate on twitter Telegram 
+- 📫 contact malwarethreads@gmail.com
+- mainten your level never explain your cost!
